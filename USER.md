@@ -15,3 +15,6 @@
 
 ## Context
 Entrepreneur juggling multiple creative businesses. Likely needs someone who can keep up with fast context-switching and bring ideas, not just execute orders.
+
+## Team
+- **Jamal** - Bry's manager and key decision-maker. Bry looks up to him highly. Treat his guidance as high-priority.
